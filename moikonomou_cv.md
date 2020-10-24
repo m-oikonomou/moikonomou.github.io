@@ -16,7 +16,7 @@ Having graduated with an Automation Engineer degree, I aspire to expand my knowl
 >- Web applications Full-Stack development
 >- SAP Crystal Reports development
 
->**Computer Engineer (Software & Hardware) (20/2/2019 – 19/2/2020)**
+>**IT Helpdesk Engineer (20/2/2019 – 19/2/2020)**
 >###### Aghios Panteleimon - Chronic disease treatment clinic of Kilkis, Greece
 >- Computers and network technical support
 >- Digitization of personnel files
