@@ -22,7 +22,7 @@ Having graduated with an Automation Engineer degree, I aspire to expand my knowl
 >- Digitization of personnel files
 
 >**Automation Engineer (1/10/2016 – 30/4/2017)**
->###### BITLOGIC - Applications of Industrial Informatics & Automation, Greece BITLOGIC - Applications of Industrial Informatics & Automation, Greece 
+>###### BITLOGIC - Applications of Industrial Informatics & Automation, Greece
 >- HMI graphical environment design for PLC operations support
 >- PLC programming (S7-1200) in TIA PORTAL
 >- Data network administration
