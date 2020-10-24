@@ -6,7 +6,7 @@
 
 ### SUMMARY
 
-Having graduated with an Automation Engineer degree, I aspire to expand my knowledge in the IT field by keeping up with relevant seminars and training courses. I consider teamwork to be a source of inspiration, while managing to face stressful conditions with patience and consistency. 
+Having graduated with an Automation Engineer degree, I aspire to expand my knowledge in the IT field by keeping up with relevant seminars and training courses. I consider teamwork to be a source of inspiration, while managing to face stressful conditions with patience and consistency. Two of my most valuable future goals are to get involved into some Computer Vision research and persue hiking on Mount Everest.
 <br><br>
 
 ### WORK EXPERIENCE
