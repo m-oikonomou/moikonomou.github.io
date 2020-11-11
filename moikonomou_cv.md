@@ -1,4 +1,4 @@
-![](https://ucb69f7ac907d8de84d80ba2aa20.previews.dropboxusercontent.com/p/thumb/AA_LLIDo1-CrhVPZhQOujR1lzCutaNi-G9xmQnw6KAJ1R3tR_Oz1tFbwLFFBnPyY3xoNcmq4YhbywJYPAnWu1J78Hx-chPUAz9_bJwLkG0T8QkIT-ws12pBnGbv5uxUAQ1PtwiyT5JZh46jgv2B0USbnNHFnnkXmYdjFg__C78fOTBG9goG8By0MTJB4rG0CKQ_9ZMLWurTEiQ-sAKfoOpV9i_rMmZWfoBYeoKlkr-jgTl-egXiL9G7H-3b05uit0KSuzDkNC_MF3okZd8g0sF_QCosWABvDiwmdmN_qi3YJpz_5K8x6BLiV3b1Kdn__0tCSyHpJvqsToASsWxHbozt96EEQoGKGMMveAQe1yt9rMbc7u5Icd4cW6am9Q1q0HqSYYGxlvvLsN2YR3puRkJ2e/p.png?fv_content=true&size_mode=5)
+![](https://www.dropbox.com/s/zn2ex4taywjtgbe/mo.png?raw=1)
 
 
 # MARIA E. OIKONOMOU  
